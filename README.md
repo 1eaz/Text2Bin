@@ -11,6 +11,6 @@
 
 ## Contact
 
-ᴅᴇᴠᴇʟᴏᴘᴇʀ, ᴍᴜʙᴀʀᴀᴋ ᴀʟ-Qᴀʜᴛᴀɴɪ.
+
 [ɪɴꜱᴛᴀɢʀᴀᴍ](https://www.instagram.com/alfzc).
 
