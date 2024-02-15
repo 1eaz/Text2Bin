@@ -12,5 +12,5 @@
 ## Contact
 
 
-[ɪɴꜱᴛᴀɢʀᴀᴍ](https://www.instagram.com/alfzc).
+[ɪɴꜱᴛᴀɢʀᴀᴍ](https://www.instagram.com/aflzc).
 
